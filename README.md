@@ -2,7 +2,7 @@
 <img src="https://64.media.tumblr.com/f8e6712e183c28d24fe593b1e831f64c/6af7dadd485721f5-7c/s400x600/6516b781ee41bb2ea6769dc783dba875b934676b.pnj"> </p>
 
 <p align="center">
-<img src="https://i.pinimg.com/564x/b2/94/5b/b2945b498aa719a5330866632839a2fc.jpg"> </p>
+<img src="https://64.media.tumblr.com/b640b7a14c5530dab9456913bf459cbc/853d7e25ec5c85df-1c/s400x600/75a07bb6bb0f29a76109cb7cec7427fb10fbdba1.pnj"> </p>
 
 <p align="center">♱
 <p align="center"> utage / uta◞ any int i dont bite just dont be a weirdo
