@@ -7,7 +7,7 @@
 <p align="center">♱
 <p align="center"> utage / uta◞ any int i dont bite just dont be a weirdo
   
-<p align="center"> more info on rentry and visit atabook or retrosprings
+<p align="center"> more info on rentry or straw page and visit atabook
   
 
 <p align="center">
