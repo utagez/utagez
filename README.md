@@ -1,8 +1,7 @@
-<p align="center">
+
 <h4 align="center"
  
-𝜗𝜚 ࣪˖ㅤׂ![](https://komarev.com/ghpvc/?username=utagez&color=CDCDCD)ㅤ⋆ㅤ.
-
+𝜗𝜚 ࣪˖ㅤׂ![](https://komarev.com/ghpvc/?username=utagez&color=868686)ㅤ⋆ㅤ.
 
  </h4>
 <p align="center">
