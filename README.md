@@ -15,5 +15,11 @@
  <a href="https://therapyavoiderz.atabook.org/">𝗮𝘁𝗮 𝗯𝗼𝗼𝗸</a> ♱ <a href="https://therapyavoiderz.straw.page/">𝘀𝘁𝗿𝗮𝘄 𝗽𝗮𝗴𝗲</a> 
  
  <p align="center">
- <img src="https://64.media.tumblr.com/ccb238012d0135006e4e40658c1f9ad7/1586f0ded7b7f13a-d7/s400x600/5a9d641579a14c94cbb8f1842cb79fd18baadd3d.pnj">
+ <img src="https://64.media.tumblr.com/4a457acfb4a1ba627806a47c48c12174/1642b772b34cea70-bb/s400x600/8ad1eb4af4f4a7825e8c1db4c4c0d13fc7e2969a.pnj">
+
+
+<p align="center">
+
+
+  
   <p align="center"> WIP!!
