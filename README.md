@@ -1,7 +1,7 @@
 
 <h4 align="center"
  
-𝜗𝜚 ࣪˖ㅤׂ![](https://komarev.com/ghpvc/?username=utagez&color=BABABA)ㅤ⋆.
+𝜗𝜚 ࣪ㅤ![](https://komarev.com/ghpvc/?username=utagez&color=BABABA)ㅤ⋆.
 
  </h4>
 <p align="center">
