@@ -6,8 +6,6 @@
  </h4>
 <p align="center">
 
-<p align="center">
-<img src="https://64.media.tumblr.com/ab1e892ef547ffbb696c1413b6988a89/51496773fb4b8733-eb/s640x960/d2857ac85476c6b7ebc2e4e0d73783fdd5e58517.pnj" width="480" height="380"> </p> 
 
 <p align="center">  utage / uta◞ any int i dont bite just dont be a weirdo
 <p align="center">  more info on rentry or straw page and visit ata book
