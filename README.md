@@ -12,10 +12,10 @@
 <p align="center">  utage / uta◞ any int i dont bite just dont be a weirdo
 <p align="center">  more info on straw page and visit ata book
 <p align="center">
- <a href="https://therapyavoiderz.atabook.org/">𝗮𝘁𝗮 𝗯𝗼𝗼𝗸</a> ♱ <a href="https://therapyavoiderz.straw.page/">𝘀𝘁𝗿𝗮𝘄 𝗽𝗮𝗴𝗲</a> 
+ <a href="https://therapyavoiderz.atabook.org/">𝗮𝘁𝗮 𝗯𝗼𝗼𝗸</a> 光よ! <a href="https://therapyavoiderz.straw.page/">𝘀𝘁𝗿𝗮𝘄 𝗽𝗮𝗴𝗲</a> 
  
  <p align="center">
- <img =>
+ <img height="49" width="200"src="https://64.media.tumblr.com/e11b1fc82396c9a24a8453e86f7f9e31/tumblr_inline_oiq49bqR2w1syhm0x_500.pnj"> 
 
 
 
