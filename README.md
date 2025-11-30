@@ -3,6 +3,9 @@
  
 ![](https://komarev.com/ghpvc/?username=utagez&color=152EA8)
 
+<p align="center">
+<a href="https://colormytree.me/2025/01JE9CF4GVNFBJMY5R96SY5VPS">𝘤𝘰𝘭𝘰𝘶𝘳 𝘮𝘺 𝘵𝘳𝘦𝘦</a>
+
  </h4>
 <p align="center">
  
@@ -12,7 +15,7 @@
 <p align="center">  utage / uta◞ any int i dont bite just dont be a weirdo
 <p align="center">  more info on straw page and visit ata book
 <p align="center">
- <a href="https://therapyavoiderz.atabook.org/">𝒂𝒕𝒂𝒃𝒐𝒐𝒌</a> ꒱ <a href="https://rentry.co/utagetherapyavoider">𝙧𝙚𝙣𝙩𝙧𝙮</a>  
+ <a href="https://therapyavoiderz.atabook.org/">𝘢𝘵𝘢𝘣𝘰𝘰𝘬</a> ꒱ <a href="https://rentry.co/utagetherapyavoider">𝘳𝘦𝘯𝘵𝘳𝘺</a>  
  
  <p align="center">
  <img height="49" width="200"src="https://64.media.tumblr.com/e11b1fc82396c9a24a8453e86f7f9e31/tumblr_inline_oiq49bqR2w1syhm0x_500.pnj"> 
