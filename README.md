@@ -11,7 +11,7 @@
 <img src="https://github.com/user-attachments/assets/9daa986d-6a57-4518-a13c-85822a311c20">
 
 <p align="center">  utage / uta◞ any int i dont bite just dont be a weirdo
-<p align="center">  more info on straw page and visit ata book
+<p align="center">  more info on rentry and visit ata book
 <p align="center">
  <a href="https://therapyavoiderz.atabook.org/">𝘢𝘵𝘢𝘣𝘰𝘰𝘬</a> ꒱ <a href="https://rentry.co/utagetherapyavoider">𝘳𝘦𝘯𝘵𝘳𝘺</a>  
  
