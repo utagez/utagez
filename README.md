@@ -6,7 +6,6 @@
 
  </h4> 
 <p align="center">
-<a href="https://colormytree.me/2025/01JE9CF4GVNFBJMY5R96SY5VPS">𝘤𝘰𝘭𝘰𝘶𝘳 𝘮𝘺 𝘵𝘳𝘦𝘦</a> 𖦹
  
 <p align="center">
 <img src="https://github.com/user-attachments/assets/9daa986d-6a57-4518-a13c-85822a311c20">
