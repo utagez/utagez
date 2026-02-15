@@ -14,7 +14,8 @@ more info on my rentry and sign ata </p>
 
 <p align="center">
 <a href="https://therapyavoiderz.atabook.org/">ᵃ</a>ᵗᵃᵇᵒᵒᵏ 
-৴ <a href="https://rentry.co/utagetherapyavoider">ʳ</a>ᵉⁿᵗʳʸ</p>
+৴ <a href="https://rentry.co/utagetherapyavoider">ʳ</a>ᵉⁿᵗʳʸ
+</p> 
 
 
 <p align="center">
