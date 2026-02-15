@@ -1,6 +1,6 @@
 <h4 align="center">
 
-![](https://komarev.com/ghpvc/?username=utagez&color=e0dbe7&label=+litte+fatties+)
+![](https://komarev.com/ghpvc/?username=utagez&color=e0dbe7&label=litte+fatties)
 
  </h4> 
  
