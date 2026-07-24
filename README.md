@@ -1,9 +1,3 @@
-<h4 align="center">
-
-![](https://komarev.com/ghpvc/?username=utagez&color=F9CEE7&label=litte+fatties)
-
-<img width="600" height="440" alt="New board (3)" src="https://github.com/user-attachments/assets/ca8a5e39-5d7b-41db-b23d-89728b72ccad" />
-
 
  </h4> 
 
