@@ -14,5 +14,5 @@
  </p>
 
  <p align="center">
-  <a href="https://therapyavoiderz.atabook.org/">a</a>tabook · rentry being rmked!
+  <a href="https://therapyavoiderz.atabook.org/">a</a>tabook · <a href="https://rentry.co/therapyavoider_chan">r</a>entry
  </p>
