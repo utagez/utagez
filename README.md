@@ -14,6 +14,4 @@
 
  <p align="center">
   <a href="https://therapyavoiderz.atabook.org/">a</a>tabook · rentry being rmked!
-
- 
-
+ </p>
