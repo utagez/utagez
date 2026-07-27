@@ -1,7 +1,3 @@
-<p>
- <img src="https://64.media.tumblr.com/89255860c123fb5fe793247d4804d7be/efa59677884e5c34-07/s1280x1920/920d9c881ea2d25dfc834603f8c2a8e821192d32.pnj">
-</p>
-
 <h4 align="center">
  
   ![](https://komarev.com/ghpvc/?username=utagez&color=000000&label=little+fatties&style=plastic) 
