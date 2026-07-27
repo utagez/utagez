@@ -4,7 +4,8 @@
  </h4>
 
 <p align="center">
- <img width="280" height="350" alt="h" src="https://github.com/user-attachments/assets/7beaab6a-8351-406e-8b36-b2f7b3d2b1f6" />
+ <img width="280" height="350" src="https://github.com/user-attachments/assets/86b0d19e-b8c8-408c-8ff6-2dd4187cc692" />
+</p>
  
 <p align="center">
 𝐔𝐓𝐀𝐆𝐄𝐙 or 𝐔𝐓𝐀 · ANY PRONOUNS.
